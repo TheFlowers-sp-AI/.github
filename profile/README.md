@@ -1,4 +1,4 @@
-# 🌸 Welcome to TheFlowers without autizm 🌸
+# 🌸 Welcome to TheFlowers 🌸
 
 ## 🌱 About Us
 
